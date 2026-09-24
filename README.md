@@ -1,6 +1,6 @@
 ## Hey!
 
-I'm Kaushik!! I'm currently a 17 year old early-university student at the University of North Texas!
+I'm Kaushik!! I'm currently a 17 year old student at the University of North Texas!
 
 Some notes about me:
 
