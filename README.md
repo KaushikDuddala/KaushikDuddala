@@ -4,6 +4,7 @@ I'm Kaushik!! I'm currently a 17 year old student at the University of North Tex
 
 Some notes about me:
 
+- I LOVE e-waste and make a lot of projects with them (if you have any please reach out to me please please please!!!)
 - Biomedical Engineering Research at the [Advanced Robototics Manipulators](https://engineering.unt.edu/bme/research/labs/arm/index.html) lab
 - Working on improving [tams.club](https://tams.club)
 - One of 9 minors to go to CES in like 30 years, thanks HackClub!!
